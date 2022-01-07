@@ -1,2 +1,5 @@
-# zio-and-the-magic-scrolls-cheats-coupon-codes-hacks
-ZIO and the Magic Scrolls Cheats coupon codes free diamonds Hacks tips
+# ZIO and the Magic Scrolls Cheats coupon codes free diamonds Hacks tips
+
+ZIO and the Magic Scrolls Cheats coupon codes free diamonds Hacks tips - Once you summon a new ZIO and the Magic Scrolls code, they will start at level 1. Units gain experience through combat, or you can use experience potion to increase their speed quickly. The highest level of each unit is equal to the player's level, so if your player level is 19, the highest level of the unit will be 19. Each unit can have up to six stars. Units start with a star. You can increase their star value by looking for more unit fragments. You can spend shards on the "level promotion" screen to increase the attributes of your unit. Once you fill all positions by consuming shards, you can get an additional star on your unit, which will become stronger. The last thing you can do is improve your unit's relevance skills. When you run some units with specific heroes, they will become stronger or unlock additional bonuses. For example, if you fight side by side with Catherine ironfist, the swordsman will become an iron handed crusader, a more powerful ZIO and the Magic Scrolls cheat engine. At levels 24 and 32, units also unlock additional abilities based on their faction and class.
+
+<a href="https://windmod.icu/zio-and-the-magic-scrolls/">Check here</a>
